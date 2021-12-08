@@ -33,4 +33,4 @@
 
     * Um pouco mais de tempo é sempre bom devido aos erros e bugs encontrados.
     * Trabalhos em trio seria uma boa. Ajudaria no processo de criar ideias e agiliza no desenvolviemento e na resolução de problemas.
-    Três para que caso alguem trancar o semestre. Não fique um sosinho.
+    Três para que caso alguem sair da equipe, ainda fique dois membros e evitar complicações.
